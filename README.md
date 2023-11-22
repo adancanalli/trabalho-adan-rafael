@@ -11,6 +11,7 @@ drone autel EVO I
 
 
 ## GALERIA
+![MAX_0120](https://github.com/adancanalli/trabalho-adan-rafael/assets/150919329/0fca5db2-e591-4b32-a907-af38a468da75)
 
 
 ![MAX_0089](https://github.com/adancanalli/trabalho-adan-rafael/assets/150919329/4684a3f3-8817-4d06-b528-80ec02d8902d)
